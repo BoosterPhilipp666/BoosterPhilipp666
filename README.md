@@ -34,11 +34,3 @@
 | ![image](https://github.com/user-attachments/assets/4ee93fd9-7a21-411b-94ff-262dff288c3a) |
 | ![image](https://github.com/user-attachments/assets/04482703-6cdd-4ea2-9f4c-10c950cfe194) |
 
-
-
-
-
-
-
-Favs: <br>
-![image](https://github.com/user-attachments/assets/52bd5df1-df68-479c-bdb0-67c3d5d55361)
